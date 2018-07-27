@@ -1,1 +1,0 @@
-# georgekuttyjosephgkj.github.io
